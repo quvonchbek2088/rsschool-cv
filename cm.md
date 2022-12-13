@@ -1,3 +1,4 @@
 # Narzullayev Quvonchbek
 
-## Contact
+## Contact:
+- Discord: MRKS77
